@@ -10,10 +10,14 @@
 
 
 
-𓏲𝄢　𓈒　 Rowan　or 　Ephraim !
+𓏲𝄢　𓈒　 Rowan,　Isaac　or 　Ephraim !
 Minor　　.Aroace　　.Agender　 n .Hermes (11th) Cabin
 
 - ⊹ ࣪ ˖ 　﹒ 　 　𓏹ㅤ
 
 
-C+H freely　. + int w care or w2i　.　esp n eng 　. DO NOT Copy my skins (ask 4 inspo)
+C+H freely　. + int w care or w2i　.　esp n eng 　. DO NOT Copy my skins (ask 4 inspo)　.Always active, smtimes in afk/offtab　. ENG IS NOT MY 1ST LENGUAGE!!
+
+- ⊹ ࣪ ˖ 　﹒ 　 　𓏹
+
+
