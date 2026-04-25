@@ -4,7 +4,10 @@
 
 
 
+
 ![image](https://github.com/SpawnOfSatann/AboutMe-ig/blob/4825142d93041980226dffe65e909fc54a011e4a/32%20sin%20t%C3%ADtulo_20260425165347.png)
+
+
 
 
 𓏲𝄢　𓈒　 Rowan　or 　Ephraim !
