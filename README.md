@@ -23,8 +23,6 @@ Pls use tonetags to int with me
 - ⊹ ࣪ ˖ 　﹒ 　 　𓏹
 
 
-Itrapped , Clockwork n Hyperlaser FictionKins!!
-
  most prob just follow u on github or sign ata cuz I feel shy about approaching people,,, But I appreciate any kind of interaction with me!
 
 idk what to put here ummm
@@ -46,7 +44,7 @@ I DONT Support Soul or others problematics actions, pls don't associate me with 
 Ichance (HC) , Frozendebt , LonelytreexItrapped , Polymadness , 1xdoe , John1337 , JaneJohn , Buildermon , Chickenroulette , ShedxGuest1337 , Azuretime , Polyadmins , Medhammer , Coilboard , Substaff , ExplosiveBussines (DoomXTaph) , Doublezipper , C00lpizza (NON FORSAKEN) , Slimeknight , subkit (HC) , ZukaxDarkheart , Hypertana , CatherineXHeathcliff , GregorXMerseault , n  moree yessss
 
 
-𓏲𝄢　𓈒　 DNI / Int w EXTREMELY care pls
+𓏲𝄢　𓈒　 DNI
 
 Doublefedora (It's mostly cuz of the toxic side), People who mischarscteriw Itrapped without knowing the lore of Forsaken , People who call new LCB/PM fans "larp" , toxic forsaken/mm12 fans , darkshippers/comshippers, basic dni n others
 
