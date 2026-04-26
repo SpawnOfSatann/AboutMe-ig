@@ -39,10 +39,6 @@ Mm12 Fans　, Forsaken (non-toxic side)　, PHIGHTING!　, Limbus Company/Proyec
 I DONT Support Soul or others problematics actions, pls don't associate me with that!
 
 
-𓏲𝄢　𓈒　 SHIPSS!!!
-
-Ichance (HC) , Frozendebt , LonelytreexItrapped , Polymadness , 1xdoe , John1337 , JaneJohn , Buildermon , Chickenroulette , ShedxGuest1337 , Azuretime , Polyadmins , Medhammer , Coilboard , Substaff , ExplosiveBussines (DoomXTaph) , Doublezipper , C00lpizza (NON FORSAKEN) , Slimeknight , subkit (HC) , ZukaxDarkheart , Hypertana , CatherineXHeathcliff , GregorXMerseault , n  moree yessss
-
 
 𓏲𝄢　𓈒　 DNI
 
