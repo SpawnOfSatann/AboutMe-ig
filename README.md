@@ -11,7 +11,7 @@
 
 
 𓏲𝄢　𓈒　 Rowan,　Isaac　or 　Ephraim !
-Minor　　.Aroace　　.Agender　 n .Hermes (11th) Cabin
+Minor　　.Aroace　　.Agender　  .6w5　  .269 (so2, sp6, sp9)
 
 - ⊹ ࣪ ˖ 　﹒ 　 　𓏹ㅤ
 
